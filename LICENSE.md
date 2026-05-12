@@ -1,4 +1,4 @@
-# 
+# elite dexscreener sniper bot | front-running + price-impact-analysis is the best dexscreener sniper bot, featuring front-running and price-impact-analysis. Fast, smart, and
 
 
 
